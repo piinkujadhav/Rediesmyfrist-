@@ -1,1 +1,2 @@
 # Rediesmyfrist-
+author- primaty isocite
